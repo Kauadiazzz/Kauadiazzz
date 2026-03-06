@@ -93,8 +93,8 @@ Features:
 
 ## 🌎 Connect with Me
 
-💼 LinkedIn: add your link
-📧 Email: add your email
+💼 LinkedIn: [(https://www.linkedin.com/in/kauã-diaz-7a0b722b9)](https://www.linkedin.com/in/kauã-diaz-7a0b722b9)
+📧 Email: kauadiaz50@gmail.com
 
 🚀 **Open to freelance opportunities**
 
